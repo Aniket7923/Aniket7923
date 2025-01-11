@@ -10,7 +10,7 @@
 
 - 👨‍💻 All of my projects are available at [https://drive.google.com/drive/u/1/my-drive](https://drive.google.com/drive/u/1/my-drive)
 
-- 📫 How to reach me **aniket.kumar07193@gmail.com**
+- 📫 How to reach me                      **aniket.kumar07193@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/drive/u/1/my-drive](https://drive.google.com/drive/u/1/my-drive)
 
